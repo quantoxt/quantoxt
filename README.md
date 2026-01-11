@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I'm currently working on Narrative Nexus (NN)<br>👯 I'm looking to collaborate on a chatting APP<br>🤝 I'm looking for help with @chris<br>🌱 I'm currently learning TS (60% there)<br>💬 Ask me about websites!<br>⚡ Fun fact...I don't go to bed until I fix the bug of the day
+🔭 I'm currently working on Zero Interpose (ZI)<br>👯 I'm looking to collaborate on a chatting APP<br>🤝 I'm looking for help with @chris<br>💬 Ask me about websites!<br>⚡ Fun fact...I don't go to bed until I fix the bug of the day
 
 
 ## 🌐 Socials:
